@@ -5,6 +5,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Bradmorris297@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Going to the University of Wyoming. 
+- ⚡ Fun fact:  
 
 I hope to create great games that people can work together and with, and have fun playing, modding, or doing whatever they want. 
